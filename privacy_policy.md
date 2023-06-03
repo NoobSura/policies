@@ -87,6 +87,4 @@ If you would like to: access, correct, amend or delete any personal information 
 
 [Re: Privacy Compliance Officer]
 
-[622 Manglam Electronic Market Jaipur Rajasthan India 302001]
-
 ----
