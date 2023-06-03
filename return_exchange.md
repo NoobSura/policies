@@ -1,4 +1,4 @@
-Return and Exchange Policy:
+**Return and Exchange Policy:**
 
 At Cobblo, we take pride in creating handmade leather products of exceptional quality. We strive to ensure that our customers are completely satisfied with their purchases. However, we understand that there may be instances where you might need to cancel an order, return a product, or request an exchange. To provide you with a seamless shopping experience, we have established the following Return and Exchange Policy:
 
