@@ -161,7 +161,7 @@ Any ambiguities in the interpretation of these Terms of Service shall not be con
 
 **SECTION 18 - GOVERNING LAW**
 
-These Terms of Service and any separate agreements whereby we provide you Services shall be governed by and construed in accordance with the laws of India and jurisdiction of Jaipur, Rajasthan
+These Terms of Service and any separate agreements whereby we provide you Services shall be governed by and construed in accordance with the laws of India and jurisdiction of Chennai, TamilNadu
 
 
 **SECTION 19 - CHANGES TO TERMS OF SERVICE**
